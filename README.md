@@ -1,2 +1,0 @@
-# naolingerie
-Nao Lingerie
